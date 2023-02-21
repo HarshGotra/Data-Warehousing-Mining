@@ -1,2 +1,6 @@
-# Data-Warehousing-Mining
-Data-Warehousing-Mining
+# HARSH GOTRA 
+# ROLL NO. :2229025
+# CLASS  M.C.A.
+# HOBBIES :M:USIC 
+#INTEREST : WEB DESIGNING
+
